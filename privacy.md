@@ -1,4 +1,4 @@
-# Privacy Policy for [Your Bot Name]
+# Privacy Policy for [Le Cars]
 
 **Effective Date:** May 13, 2025
 
